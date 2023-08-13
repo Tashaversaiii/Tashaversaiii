@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tashaversaiii
-- 👀 I’m interested in ... learning how to produce music with ai and learn how to promote myself on social media through ai.
-- 🌱 I’m currently learning ... How to talk to ai and about the type of music im making.
+- 👀 I’m interested in ... .
+- 🌱 I’m currently learning ... 
 - 💞️ I’m looking to collaborate on ... Creating a sound and maybe finding a manager
 - 📫 How to reach me ... tashaversaiii@gmail.com
 - 
